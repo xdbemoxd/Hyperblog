@@ -7,3 +7,6 @@ Este curso me inspiro a seguir mi camino como futuro cientifico especializado en
 
 *Freddy Mercury es el mejor cantautor de la historia, no solo canto rock, tambien hizo opera, le fue muy bien, si no me crees entra al siguiente enlace: [Barcelona - Freddy & Monserrat](https://www.youtube.com/watch?v=Y1fiOJDXA-E&pp=ygUsYmFyY2Vsb25hIGZyZWRkaWUgbWVyY3VyeSBtb250c2VycmF0IGNhYmFsbGU%3D)
 
+## are you gay?
+* vamos a ver que pedo 
+* ola wapo, komo eztax?
