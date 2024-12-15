@@ -12,3 +12,5 @@ Este curso me inspiro a seguir mi camino como futuro cientifico especializado en
 * ola wapo, komo eztax?
 * XD XD XD XD
 * oh shit, here we go again 
+* tu cancion - los mesoneros 
+* the line - twenty one pilots
