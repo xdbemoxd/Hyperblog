@@ -10,3 +10,5 @@ Este curso me inspiro a seguir mi camino como futuro cientifico especializado en
 ## are you gay?
 * vamos a ver que pedo 
 * ola wapo, komo eztax?
+* XD XD XD XD
+* oh shit, here we go again 
