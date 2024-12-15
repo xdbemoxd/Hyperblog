@@ -14,3 +14,4 @@ Este curso me inspiro a seguir mi camino como futuro cientifico especializado en
 * oh shit, here we go again 
 * tu cancion - los mesoneros 
 * the line - twenty one pilots
+* disponibles en youtube
